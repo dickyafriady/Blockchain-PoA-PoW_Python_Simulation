@@ -1,3 +1,6 @@
+![image](https://github.com/user-attachments/assets/35d9c1c6-b720-4930-a69f-3189ba1deea6)
+
+![image](https://github.com/user-attachments/assets/04032538-a033-4fa0-bba2-c200c138930f)
 
 
 The background use visualitation is report final project bachelor degree Telecommunication Engineer.
